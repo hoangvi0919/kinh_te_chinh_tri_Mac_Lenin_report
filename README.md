@@ -1,1 +1,1 @@
-# kinh_te_chinh_tri_Mac_Lenin_report
+Bài báo cáo tiểu luận kết thúc học phầnkinh tế chính trị Mac Lenin
